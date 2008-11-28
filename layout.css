@@ -1,0 +1,72 @@
+body {
+	margin:0px;
+	padding:0px;
+	font-family:verdana, arial, helvetica, sans-serif;
+	color:#333;
+	background-color:white;
+	}
+h1 {
+	margin:0px 0px 15px 0px;
+	padding:0px;
+	font-size:28px;
+	line-height:28px;
+	font-weight:900;
+	color:#666;
+	}
+	h2 {
+		margin:0px 0px 15px 0px;
+		padding:0px;
+		font-size:16px;
+		line-height:18px;
+		font-weight:900;
+		color:#666;
+		}
+		h3 {
+			margin:0px 0px 15px 0px;
+			padding:0px;
+			font-size:14px;
+			line-height:16px;
+			font-weight:900;
+			color:#666;
+			}
+p, li {
+	font:14px/20px verdana, arial, helvetica, sans-serif;
+	margin:0px 0px 16px 0px;
+	padding:0px;
+	}
+#Content>p {margin:10px;}
+
+
+a {
+	color:#09c;
+	text-decoration:none;
+	font-weight:600;
+	font-family:verdana, arial, helvetica, sans-serif;
+	}
+a:link {color:#09c;}
+a:visited {color:#07a;}
+a:hover {background-color:#eee;}
+
+
+
+#Content {
+	margin:0px 110px 50px 10px;
+	padding:10px;
+	}
+
+#Menu {
+	position:absolute;
+	top:100px;
+	right:20px;
+	width:172px;
+	padding:10px;
+	background-color:#eee;
+	border:1px dashed #999;
+	line-height:17px;
+/* Again, the ugly brilliant hack. */
+	voice-family: "\"}\"";
+	voice-family:inherit;
+	width:150px;
+	}
+/* Again, "be nice to Opera 5". */
+body>#Menu {width:150px;}
