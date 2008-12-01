@@ -1,7 +1,7 @@
 body {
 	margin:0px;
 	padding:0px;
-	font-family:verdana, arial, helvetica, sans-serif;
+	font-family: consolas, monospace;
 	color:#333;
 	background-color:white;
 	}
@@ -22,12 +22,12 @@ h2 {
 	color:#666;
 	}
 p, li {
-	font:14px/20px verdana, arial, helvetica, sans-serif;
+	font:14px/20px consolas, monospace; 
 	margin:0px 0px 16px 0px;
 	padding:0px;
 	}
 blockquote {
-    font:14px/20px verdana, arial, helvetica, sans-serif;
+    font:14px/20px consolas, monospace;
 }
 #Content>p {margin:10px;}
 
@@ -36,7 +36,7 @@ a {
 	color:#09c;
 	text-decoration:none;
 	font-weight:600;
-	font-family:verdana, arial, helvetica, sans-serif;
+	font-family:verdana, consolas, monospace;
 	}
 a:link {color:#09c;}
 a:visited {color:#07a;}
