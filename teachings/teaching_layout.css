@@ -33,9 +33,6 @@ blockquote {
 
 
 a {
-	color:#09c;
-	text-decoration:none;
-	font-weight:600;
 	font-family:verdana, consolas, monospace;
 	}
 a:link {color:#09c;}

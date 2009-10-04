@@ -1,0 +1,50 @@
+# Flesh; Body; Spirit #
+Romans 8:6-16  
+Will Fitzgerald  
+Kalamazoo Mennonite Fellowship  
+September 27, 2009
+
+These are background notes on Romans 8:6-16
+
+The following is my sort-of translation. "Sarx" is "flesh." "Pneuma" is spirit.  "Soma" is body. "Aldelphoi" is literally "brothers."
+
+[6] Sarx-mindedness is death, but pneuma-mindedness is life and peace. [7] Sarx-mindedness is God-hatred, unsubmitted to the law of God, indeed unable to do so. [8] Those in sarx cannot please God. Now you are not in sarx. You are in pneuma, for the pneuma of God lives in you. Those not in the pneuma of Christ are not in him. [10] But if Christ be in you, though the soma be dead through sin, the pneuma is life through righteousness. [11] If the pneuma of the one who brought back Jesus out of the dead lives in you, the one who brought Christ from the dead will make your mortal somas live, too, through his [God's? Jesus's?] pneuma that lives in you. [12] And so, dear family [adelphoi], we are not obliged/endebted to sarx, to live according to sarx--for if you live according to flesh, you will perish. But if according to pneuma, you kill the acts of the soma, you will live. [14] For those led by the pneuma of God are children[sons] of God. [15] You did not get a pneuma of slavery back to fear, but you got a pneuma of child[son]-ship (adoption). When we cry out, Oh, Abba! Oh, Father! [16] the same pneuma acknowledges/witnesses with our pneuma we are children of God; and if children, then legal heirs, legal heirs of God and legal heirs with Christ if we suffer with him and thus glorified with him.
+
+The flesh[sarx]/body[soma]/mind:
+
+- naturally hates God
+- unable to keep God's law
+- unable to make God happy
+- is mortal and will perish
+- is slavery
+- is fear
+- dead due to sin
+
+The spirit[pneuma]:
+
+- [can love God]
+- [can keep God's law]
+- [can make God happy]
+- is life
+- can make even our body/flesh live!
+
+The transfer from body/flesh/mind to spirit:
+
+- means we are no longer required to live and die 'in the flesh'.
+- we can kill the killer [the flesh]
+- is [just] like God's bringing back Jesus from death to life:
+  - done by Spirit of God
+  - gives us legal rights
+
+Some evidence of God's work in our life (working backward):
+
+- We have shared in the glory of God.
+- We have suffered with Christ.
+- We have cried out 'Abba, Father.'
+- We are living a spiritual life.
+
+Paul in Gal. 5:22,23:
+
+>  But the fruit of the Spirit is love, joy, peace, patience, kindness, goodness, faithfulness, gentleness and self-control. Against such things there is no law.
+
+Which of these fruits are most evident in your life? Which of these fruits do you wish were more evident in your life?
