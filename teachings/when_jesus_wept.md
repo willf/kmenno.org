@@ -1,0 +1,36 @@
+# When Jesus Wept #
+November 1, 2009  
+Kalamazoo Mennonite Fellowship  
+John 11:1-44
+Will Fitzgerald
+
+## When Jesus Wept ##
+
+There are few stories in the gospels as touching as the story of Jesus and his friends in Bethany, three siblings: Lazarus and Martha and Mary. 
+
+Jesus is near the height of his popularity. He has faced down a murderous crowd who sought to stone him, and nothing seems to be able to stop him. He goes to the place where John preached and where John had declared him to be the Lamb of God who would take away the sin of the world. This causes the crowd to remember John's prophecy, and to reflect that (just as John said) Jesus was greater than John. But as many people are starting to believe him, news arrives from Mary and Martha: their brother Lazarus, whom Jesus loved,  was very ill. We read that Mary was convinced that Jesus could heal Lazarus, but rather than rush to Lazarus, Jesus decides to stay a couple more days at the Jordan, and send the message that Lazarus's illness was not fatal, but would result in God's glory.
+
+But before Jesus and his disciples arrive in Bethany, Lazarus has died. In fact, Jesus knew this already. His disciples had tried to convince him not to go the Bethany because it was risky to return to Judea because of the angered forces arrayed against him. But Jesus reminds them he has work to do, and only so much time to do it; and that the light would guide him as he did it. He is returning to wake Lazarus from the dead.
+
+It is interesting to see what people are concerned about here. Martha and Mary are concerned with Lazarus's health. The disciples are concerned with Jesus's safety. But Jesus is concerned with God's glory, and he will follow the Light and do what God desires.
+
+Martha had actually come out to meet Jesus as he was arriving in Bethany. (Remember, Martha is the one who seems to be the one who always needs to be doing something.) Perhaps she came to tell him not to bother coming because Lazarus was dead, so he needn't risk coming into what is now enemy territory. In any case, she seems to chide him a bit: "If only you had been here, my brother would not have died." And this enigmatic statement, "But even now I know that God will give you whatever you ask of him." Is she perhaps hinting that Jesus might raise Lazarus as he did Jarius's daughter? I don't think so, for she seems to think that he will rise from the dead "on the last day." I think she is saying that, although Jesus failed to grant this important request, she still believed in him as God's messiah. And Jesus brings this to the point: He is, he claims, the resurrection and the life. (This is one of the great "I am" statements in John's gospel.) And she confesses, as every good disciple of Jesus will, that he is the Messiah, the Son of God, the one coming into the world. 
+
+Mary is sent for, and comes to Jesus, followed by some of the mourners who think she's gone to the tomb. Mary, too, tells Jesus that Lazarus would not have died if Jesus had come in time. And you know what? Both Martha and Mary are right: Lazarus would not have died if Jesus had come in time. Jesus deliberately choose to wait to come to Bethany, not out of fear of the risks of coming, but because he sought to glorify God in what was to happen.
+
+This knowledge of doing God's will didn't mean Jesus was above grief. He loved Martha and Mary, and when he saw their tears, he also wept. Furthermore, the scriptures say he was "greatly disturbed in spirit and deeply moved," the strongest emotions (I think) we have recorded of Jesus's in the gospels. This disturbance he felt was one of anger; Anger, I think, at the unjust way of the world and the sadness of pain, sorrow, and death. And perhaps, because he was constrained by the Spirit of God to wait until Lazarus's death until he came to Bethany, perhaps anger of having to live in a world that required him to withhold his love for a time.  The fellow mourners note how much he loved Lazarus, but they, too, wonder if he could have healed Lazarus before his death as he had healed Bartimaeus.
+
+Again, the scriptures tell us that Jesus was "greatly disturbed." One of the characteristics that my children don't like in me, I think, is how often I sigh when I am disappointed. (I think they can't help but think that it is them I am disappointed in. I try to rein it in, but ... sigh ...). Jesus's "great disturbance" was something like a great sigh, I think--the Greek word is also used of a horse's snort or roar. And I think he is disappointed: disappointed in death and disease and sorrow and pain, disappointed in the disappointment of others; disappointed in having to make his beloved friends go through this trauma.
+
+Jesus doesn't stay in his disappointment: God's plan and God's glory is more important. Lazarus has been dead for four days, but he tells them to remove the stone that covers his tomb. Martha cautions him: there's is going to be a stench; or, as it says in the King James Version, "he stinketh."
+
+Jesus prays; loudly, I think, more for the benefit of the crowd than for himself; or, better, as a way to give God glory. And then he calls to the dead body of Lazarus: "Lazarus, come out!" And (like some zombie or mummy from a cheesy horror flick) he come out, "his hands and feet bound with strips of cloth, and and his face wrapped in a cloth." But this isn't Hallowe'en; Jesus loves Lazarus and gets him unbound from his wrappings, and from death itself.
+
+Some of those who came out to mourn with Mary and Martha now too believe in Jesus, but some tell the religious authorities. Jesus and Lazarus will be targeted for assassination.
+
+Lazarus's story reminds us of Jesus's story. Like Jesus, Lazarus died, was buried, and placed in a tomb for several days. Like Jesus, Lazarus was raised from the dead, and, like Jesus, many witnessed his resurrection. Like Jesus, his resurrection evoked confusion and anger. 
+
+Unlike Jesus, Lazarus died again. But Jesus was the "firstborn of many children," and the promise in which Martha believed earlier, "I know that he will rise again in the resurrection on the last day," is enabled by Jesus's own resurrection; without this, neither Lazarus, nor Martha, nor Mary, nor I, nor you, would have the hope of resurrection. 
+
+So, consider Jesus's statement to Martha, "This sickness does not lead to death." I'm going to need a couple of extra hands to consider this. On the one hand, what Jesus said was false: Lazarus died before Jesus got to Bethany. On the other hand, Jesus knew this was going to happen--and then, suddenly, Lazarus wasn't dead, but alive. On the third hand, Lazarus's healing (like all our healings) are temporary. I read recently that there is some day of the year is the anniversary of our future death, and it was as true for Lazarus as it is for us (of course, he has two death days!) But, on the fourth hand, "he will rise again in the resurrection on the last day," and there is some day of the year that is (for all who believe) also an anniversary of our future resurrection. The sickness we all have is death, but the promise from the Lord of Life is that the sickness unto death does not lead *ultimately* to death, but to life.
+
