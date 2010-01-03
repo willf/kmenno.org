@@ -1,4 +1,4 @@
-# The Word and Our words ##
+# The Word and Our words #
 Kalamazoo Mennonite Fellowship  
 January 3, 2010  
 Will Fitzgerald  
