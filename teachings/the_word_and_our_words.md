@@ -17,7 +17,7 @@ And the Word became flesh and lived among us, and we have seen his glory, the gl
 
 Let's start this way. 
 
-I would like everyone to close their eyes. I want you to imagine a green field in early spring, with wild flowers in it. Ok? Now, I am going to say a word in just a little bit. Keep imagining that field. The word is "rabbit." I'm going to say another word in just a little bit. Keep imagining the filed. The word is "fox." 
+I would like everyone to close their eyes. I want you to imagine a green field in early spring, with wild flowers in it. Ok? Now, I am going to say a word in just a little bit. Keep imagining that field. The word is "rabbit." I'm going to say another word in just a little bit. Keep imagining the field. The word is "fox." 
 
 Ok, you can open your eyes. Tell me what you saw.
 
@@ -45,5 +45,5 @@ Let's spend a few minutes in praise to the Word who created all of this. Let's p
 
 We are created in the image of God, and our God is a creative God, who creates through words. In what ways will you be creative in your use of words in 2010?
 
-Are there stories you need to write? Are there conversations that you need to have? Are there kind words that you need to speak? Are there hard words you need to write? Are their words you need to "take back?" Are there spaces you need to create for conversations to happen? Are there new technologies you need to understand how to use so you can communicate with others? Are there technologies that you should limit because they are creating images in your head that are not healthy? 
+Are there stories you need to write? Are there conversations that you need to have? Are there kind words that you need to speak? Are there hard words you need to write? Are there words you need to "take back?" Are there spaces you need to create for conversations to happen? Are there new technologies you need to understand how to use so you can communicate with others? Are there technologies that you should limit because they are creating images in your head that are not healthy? 
 
