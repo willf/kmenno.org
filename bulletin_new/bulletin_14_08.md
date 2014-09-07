@@ -1,0 +1,9 @@
+<img src="http://www.mennoniteusa.org/wp-content/uploads/2014/05/mennonite-church-usa-logo.png" height="50px" />
+#Kalamazoo Mennonite Fellowship
+####Simplicity. Service. Peace. Worship. Community. Jesus.### August 2014 Readings- August 3, 2014: Genesis 32:22-31; Psalm 17:1-7, 15; Romans 9:1-5; Matthew 14:13-21
+- August 10, 2014; Genesis 37:1-4, 12-28; Psalm 105: 1-6, 16-22, 45b; Romans 10:5-15; Matthew 14:22-33
+- August 17, 2014; Genesis 45:1-15; Psalm 133; Romans 11:1-2a, 29-32; Matthew 15: (10-20), 21-28
+- August 24, 2014; Exodus 1:8-2:10; Psalm 124; Romans 12:1-8; Matthew 16:13-20
+- August 31, 2014; Exodus 3:1-15; Psalm 105:1-6, 23-26, 45b; Romans 12:9-21; Matthew 16:21-28### Order of Worship- Welcome- Opening prayer and song- Centering Silence and confession- Prayer and announcement of forgiveness- Readings and Songs of Worship- Teaching & Reactions- Joys and Concerns with Prayer- Offering and Other Announcements- Benediction and closing song### Prayer and Mission List_Conference and Local_
+ - Indiana-Michigan Conference, especially Dan Miller (conference minister) , the Missional Leadership Team (executive committee), and the Unity and Variance committee.- Kalamazoo Loaves and Fishes- Campus Ministries at Western Michigan University and Kalamazoo College_Friends Far and Wide_
+- David and Hilary Ker, Red Zebra Project in southern Africa- Joe and Sharon Rosa, Dakar Academy, Senegal, Africa- JC and Lois Ebersole (and Andrea and Kyle), former Eastern Mennonite Missions in Ghana, now in Pennsylvania- Carlos and Rebecca Pinto, Latin American Missions- Michael Ayuen Kuany and Rebuild Sudan.- Rachel and Jesus Reyes, Oaxaca, Mexico. Germantown Mennonite Historic Trust- Michael Gulker and The Colossians Project, Grand Rapids, Michigan

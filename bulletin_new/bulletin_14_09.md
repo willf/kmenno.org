@@ -1,0 +1,8 @@
+<img src="http://www.mennoniteusa.org/wp-content/uploads/2014/05/mennonite-church-usa-logo.png" height="50px" />
+#Kalamazoo Mennonite Fellowship
+####Simplicity. Service. Peace. Worship. Community. Jesus.### September 2014 Readings- September 7, 2014: Exodus 12:1-14; Psalm 149; Romans 13:8-14; Matthew 18:15-20
+- (Holy Cross) September 14, 2014: Numbers 21:4b-9; Psalm 98:1-5; 1 Corinthians 1:18-24; John 3:13-17
+- September 21, 2014: Exodus 16:2-15; Psalm 105:1-6, 37-45; Philippians 1:21-30; Matthew 20:1-16
+- September 28, 2014: Exodus 17:1-7; Psalm 78:1-4, 12-16; Philippians 2:1-13; Matthew 21:23-32### Order of Worship- Welcome- Opening prayer and song- Centering Silence and confession- Prayer and announcement of forgiveness- Readings and Songs of Worship- Teaching & Reactions- Joys and Concerns with Prayer- Offering and Other Announcements- Benediction and closing song### Prayer and Mission List_Conference and Local_
+ - Indiana-Michigan Conference, especially Dan Miller (conference minister) , the Missional Leadership Team (executive committee), and the Unity and Variance committee.- Kalamazoo Loaves and Fishes- Campus Ministries at Western Michigan University and Kalamazoo College_Friends Far and Wide_
+- David and Hilary Ker, Red Zebra Project in southern Africa- Joe and Sharon Rosa, Dakar Academy, Senegal, Africa- JC and Lois Ebersole (and Andrea and Kyle), former Eastern Mennonite Missions in Ghana, now in Pennsylvania- Carlos and Rebecca Pinto, Latin American Missions- Michael Ayuen Kuany and Rebuild Sudan.- Rachel and Jesus Reyes, Oaxaca, Mexico. Germantown Mennonite Historic Trust- Michael Gulker and The Colossians Project, Grand Rapids, Michigan
