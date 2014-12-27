@@ -1,6 +1,6 @@
-1 Peter 5
-Will Fitzgerald
-Kalamazoo Mennonite Fellowship
+## 1 Peter 5 ## 
+Will Fitzgerald <br>
+Kalamazoo Mennonite Fellowship<br>
 September 27, 2014
 
 In this final chapter, Peter gives instructions about elders, some more moral instructions, and some final greetings.
